@@ -6,7 +6,7 @@
 - 🌱 Currently Skilled in coding, Development and Code Review.
 - 👯 Looking to collaborate on any coding projects.
 - 💬 Ask me about anything, I would be happy to help.
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/mahmoud-attia-5a70ba236/).
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/mahmoud-el-sayed-5a70ba236/).
 
 * * * 
 
